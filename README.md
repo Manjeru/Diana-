@@ -1,0 +1,2 @@
+# Diana-
+Now we are looking for senior level Scala Developer that's available to begin work immediately. He/She has to be available to work on site (no remote possibilities). This is a contract position lasting until the end of the year; however, this assignment could go longer or have the possibility of placement. Please find more details about in link below: https://curaweb2.mindscope.com/TECHNA04436_CURA/aspx/JobDetails.aspx?lang=en&amp;Job_ID=90  
